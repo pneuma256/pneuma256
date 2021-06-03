@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning smart contracts/ethereum
 - 💞️ I’m looking to collaborate on OS
 - 📫 How to reach me *pneuma256 [At] gmail*
-- :sunglasses: Wanne listen something cool? [https://www.youtube.com/watch?v=FssULNGSZIA](https://www.youtube.com/watch?v=FssULNGSZIA)
+- :sunglasses: Wanna listen something cool? [https://www.youtube.com/watch?v=FssULNGSZIA](https://www.youtube.com/watch?v=FssULNGSZIA)
